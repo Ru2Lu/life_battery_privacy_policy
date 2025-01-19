@@ -1,0 +1,1 @@
+# life_battery_privacy_policy
